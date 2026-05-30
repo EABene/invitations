@@ -1,1 +1,1 @@
-# invitations
+compelling invitations
