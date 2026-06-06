@@ -1,5 +1,5 @@
 compelling invitations
 
-partly vibe-coded.
+Careful! partly vibe-coded.
 
 https://eabene.github.io/invitations/
